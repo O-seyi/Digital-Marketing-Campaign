@@ -1,3 +1,4 @@
+![digital merketting](https://github.com/user-attachments/assets/d546e018-bdc0-4512-9626-34f88d2e6df5)
 # Digital-Marketing-Campaign
 In an increasingly digital world, businesses face the critical challenge of effectively reaching and engaging their target audience online. Despite investing in digital marketing strategies, many companies struggle with low conversion rates, poor audience targeting, and unclear return on investment . This issue is compounded by rapidly changing algorithms on platforms like Google and social media, consumer resistance to traditional advertising, and a saturated online marketplace
 Key insight
